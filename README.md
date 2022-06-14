@@ -1,4 +1,4 @@
-- Current location: Izmir, Turkey
+- Current location: Buenos Aires, Argentina
 - Pronouns: they/them
 - Discord: unparalloser#6701
 - Hobbies: digital art, 3D modeling, game dev
